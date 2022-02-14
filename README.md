@@ -1,3 +1,18 @@
+**Proposal**
+
+
+For my visual argument I want to create an inspiring poster that shows hard work pays off. I want to put three people up there that emphasize the will to keep dreaming and pushing forward through adversity to accomplish their goals in sports. I was inspired by the story of Cooper Kupp this NFL season; he had 0 college offers and was a 0 star recruit in high school and is now the Super Bowl 56 MVP. I want the poster to be accessible to many different people. I think putting people such as Lindsey Vonn, Lebron James, or Bethany Hamilton will help with this part.  I also think going from left to right will give a sense of future direction. On the left will be the athletes before they became superstars. The middle will be a color fade. the right will be the athletes as they are now: accomplished superstars. Around their before pictures I plan to put their setbacks or the adversity they faced. Then around the present picture I plan to put their present-day accomplishments in the form of objects or text. I will be arguing that through hard work anything can be accomplished.
+
+
+| Needs | Solution | 
+| --- | --- |
+| Pictures of Athletes| Fair use/CC/internet| 
+| Football content| Fair use/CC/internet|
+| Text | Written by me | 
+| Basketball content | Fair use/CC/internet | 
+| Other sports content | Fair use/CC/internet |
+
+
 # Project 2: Visual Argument / Rhetorical Collage
 
 Your task in this unit is to **make a rhetorical claim through the juxtaposition of images and text.** It's kind of a collage, but a collage with an argument to make. In assigning this, I have two main goals for you: (1) to learn how to ethically obtain images and edit them using digital tools, and (2) to explore the affordances of still images as a medium, and especially their ability to _direct attention_ and _help make ideas memorable_.
